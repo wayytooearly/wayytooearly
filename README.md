@@ -6,4 +6,4 @@ I like to mod PC hardware and change things in the operating system.
 
 Things about me:
 
-i am mrholotech
+my previous name was mrholotech but i changed it
